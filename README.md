@@ -1,2 +1,2 @@
 # MarcosGarciauva.githum.io
-Don Aceton, productos de limpieza y mas 
+Don Aceton, productos de limpieza
